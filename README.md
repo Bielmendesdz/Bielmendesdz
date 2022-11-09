@@ -1,5 +1,7 @@
 ## Olá!! 
 
+Meu nome é  Gabriel Mendes
+
 - 📚  Atualmente sou estudante de Segurança da informação.
 - 👨‍🎓  Iniciando no mundo do Front-end.  
 - 📫  Contate-me no e-mail: bielmendesdz@gmail.com  |  Discord : bielmendesds#4268
