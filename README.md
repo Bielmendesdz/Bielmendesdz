@@ -9,7 +9,7 @@ Me chamo Gabriel Mendes Diniz e sou estudante iniciante na área de programaçã
 
 🚩 : Estou procurando fazer parcerias em projetos.
 
-📩 : Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 |
+📩 : Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 | Linkedin: linkedin.com/in/gabriel-mendes-838770256
 
 
 Hello,
