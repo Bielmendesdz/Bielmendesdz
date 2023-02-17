@@ -2,24 +2,22 @@ Olá,
 
 Me chamo Gabriel Mendes Diniz e sou estudante iniciante na área de programação.
 
+👀: Estou procurando aumentar meu ciclo de amizade o famoso (network) e também procuro vagas para entrar no mercado de trabalho.
 
-👀 : Estou procurando aumentar  meu ciclo de amizade  o famoso (network) e também procuro vagas para entrar no mercado de trabalho.
+🌱: Estudando constantemente HTML5 | CSS3 | JAVASCRIPT | 
 
-🌱 : Constantemente estudando HTML5 | CSS3 | JAVASCRIPT | REACT.
+🚩: Estou procurando fazer parcerias em projetos.
 
-🚩 : Estou procurando fazer parcerias em projetos.
+📩: Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 | Linkedin: linkedin.com/in/gabriel-mendes-838770256
 
-📩 : Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 | Linkedin: linkedin.com/in/gabriel-mendes-838770256
+Olá,
 
+Meu nome é Gabriel Mendes Diniz e sou aluno iniciante na área de programação.
 
-Hello,
+👀: procuro aumentar meu ciclo de amizade os famosos (rede) e também procuro vagas para entrar no mercado de trabalho.
 
-My name is Gabriel Mendes Diniz and I am a beginner student in the area of ​​programming.
+🌱: Estudar HTML5 constantemente | CSS3 | JAVASCRIPT |
 
-👀 : I'm looking to increase my friendship cycle the famous (network) and I'm also looking for vacancies to enter the job market.
+🚩: Estou procurando parcerias em projetos.
 
-🌱 : Constantly studying HTML5 | CSS3 | JAVASCRIPT | REACT.
-
-🚩 : I'm looking to partner on projects.
-
-📩 : Contact me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 |
+📩: Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 |
