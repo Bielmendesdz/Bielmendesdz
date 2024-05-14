@@ -1,13 +1,6 @@
-Olá,
+💻📚Olá, meu nome é Gabriel, e sou graduado em Segurança da Informação. 
+ Venho aprimorando meus estudos para atingir meus objetivos profissionais em CyberSecurity, Redes de computadores, e Cloud Computing (AZURE, GCP e AWS ).
 
-Me chamo Gabriel Mendes Diniz e sou estudante iniciante na área de programação.
-
-👀: Estou procurando aumentar meu ciclo de amizade o famoso (network) e também procuro vagas para entrar no mercado de trabalho.
-
-🌱: Estudando constantemente HTML5 | CSS3 | JAVASCRIPT | 
-
-🚩: Estou procurando fazer parcerias em projetos.
-
-📩: Contacte-me | Gmail: bielmendesdz@gmail.com | Discord: bielmendesds#4268 | Linkedin: linkedin.com/in/gabriel-mendes-838770256
+📩 Contate me: bielmendesdz@gmail.com
 
 
